@@ -1,2 +1,0 @@
-# zizvamily.com
-zizz
